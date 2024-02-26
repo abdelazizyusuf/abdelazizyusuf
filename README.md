@@ -6,5 +6,5 @@
 
 💞️ I’m eager to collaborate on any exciting projects in the field of industrial engineering, automation, or AI. I particularly enjoy technical content writing and sharing insights with the community through blog posts, tutorials, and documentation.
 
-📫 You can reach me via email at my contact information.
+📫 You can reach me via [email](abdelaziz.yousef1997@gmail.com) at my contact information.
 
